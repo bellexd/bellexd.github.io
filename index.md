@@ -1,1 +1,1 @@
-[bitchbot](https://discord.com/invite/TJJeeuYKBB)
+[discord](https://discord.com/invite/TJJeeuYKBB)
